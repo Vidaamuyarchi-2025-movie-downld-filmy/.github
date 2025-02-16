@@ -30,7 +30,7 @@ vidaamuyarchi 𝘥𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘧𝘳𝘦𝘦 𝘧𝘪𝘭𝘮
 
 vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘬𝘶𝘵𝘵𝘺𝘮𝘰𝘷𝘪𝘦𝘴 𝘪𝘯 𝘵𝘢𝘮𝘪𝘭𝘳𝘰𝘤𝘬𝘦𝘳𝘴
 
-The narrative will reveal various aspects of vidaamuyarchi's life—his struggles, his efforts, and how he fights against his enemies and the system. Alongside, themes of family relationships, friendship, trust, and loyalty will also be incorporated, which makes the film even more engaging.
+The narrative will reveal various aspects of vidaamuyarchi's life—his struggles, his efforts, and how he fights against his enemies and the system. Alongside, themes of family relationships, friendship, trust, and loyalty will also be incorporated which makes the film even more engaging.
 
 ## Cast and Acting
 
